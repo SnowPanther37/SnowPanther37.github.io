@@ -1,1 +1,1 @@
-# SnowPanther37.github.io
+# snowpanther37.github.io
